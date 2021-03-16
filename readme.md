@@ -1,1 +1,1 @@
-God is great. added somother text
+God helping since i was born
