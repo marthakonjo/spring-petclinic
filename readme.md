@@ -1,2 +1,1 @@
-added some note
-git status
+add some text
